@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning data science courses focusing more on machine learning
 - 👯 I’m looking to collaborate in data science field 
 - 💬 Ask me about coding stuffs 
-- 📫 How to reach me: (mkouboimoubarak18@gmail.com)
+- 📫 How to reach me: [Email](mkouboimoubarak18@gmail.com)
