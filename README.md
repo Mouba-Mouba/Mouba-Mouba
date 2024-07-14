@@ -1,5 +1,5 @@
 ### Hi there, I'm Mohamed Moubarak (Moubarak)👋
-A student and devoted self-taught Learner from the Comoro Islands.
+A student and devoted self-taught Learner from the Comoros Islands.
 
 
 
