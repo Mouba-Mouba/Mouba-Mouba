@@ -1,4 +1,4 @@
-### Hi there, I'm Mohamed Moubarak (Moubarak)👋
+### Hi there, I'm Moubarak👋
 A passionate student and self-taught learner from the Comoros Islands, with a strong focus on data science and artificial intelligence.
 
 
